@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm Shubham Saini<br>Currently pursuing my B. Tech graduation at ABES Engineering College , Ghaziabad<br>Graduation year 2025-29<br>Dedicate about work<br>Still Enhance my Skills<br>
+I'm Shubham Saini<br>Currently pursuing my B. Tech graduation at ABES Engineering College , Ghaziabad<br>Graduation year 2025-29<br>Dedicated to my work<br>Currently progressing toward further skill development<br>
 
 
 ## 🌐 Socials:
